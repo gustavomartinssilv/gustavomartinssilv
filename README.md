@@ -10,3 +10,6 @@ Meu nome é Gustavo.
 ### Você pode entrar em contato comigo 📫
 
 gustavo.martins.siva15@escola.pr.gov.br
+
+
+![](https://media.tenor.com/5JUtgd1OxJcAAAAC/downs-down-syndrome.gif)
